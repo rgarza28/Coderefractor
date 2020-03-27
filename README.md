@@ -1,0 +1,1 @@
+This site covers the services offered by Horiseon and the benefits gained by working with the company.
